@@ -1,0 +1,2 @@
+# StayHard
+no fuckin bullshit
